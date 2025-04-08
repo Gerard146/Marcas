@@ -1,1 +1,1 @@
-# Marcas
+# Marcas - Tira comica Gerardo
